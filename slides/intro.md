@@ -12,3 +12,6 @@
 > Cloud Solution Architect @ Sogeti
 
 <img src="https://pbs.twimg.com/profile_images/1007639151812988929/ln3iUxxF_400x400.jpg" width="200px" />
+
+Paf
+Pastèque
